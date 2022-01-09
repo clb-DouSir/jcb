@@ -9,7 +9,7 @@
 
 最新版本：V2.22.1
 
-下载地址：[网盘下载](https://wwt.lanzouj.com/iv82gyjoxte)
+下载地址：[网盘下载](https://wwt.lanzouj.com/iiaNJyjpfpi)
 
 最新版本更新记录：
 
